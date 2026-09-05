@@ -13,4 +13,4 @@
 *if you know who i am.. no, you don't . love you though*
 
 
-<img https://media.discordapp.net/attachments/1340215908936978454/1530770374604754964/image.png?ex=6a9d7ec1&is=6a9c2d41&hm=9c4e8648d9fc31cd0dc1945631621288989298202af1a29b848e621808e3a155&=&format=webp&quality=lossless&width=1024&height=500 />
+<img width="2048" height="171" alt="tumblr_cf80fab3a6c33a8318cd7aa74920a110_4d6302fc_2048" src="https://github.com/user-attachments/assets/34d78ab6-1d79-49a9-8a3f-d9b337f5950c" />
