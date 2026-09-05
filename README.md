@@ -13,4 +13,4 @@
 *if you know who i am.. no, you don't . love you though*
 
 
-<img width="2048" height="171" alt="tumblr_cf80fab3a6c33a8318cd7aa74920a110_4d6302fc_2048" src="https://github.com/user-attachments/assets/34d78ab6-1d79-49a9-8a3f-d9b337f5950c" />
+<img width="2048" height="171" alt=https://64.media.tumblr.com/94ec14c5eeed2a525a4c1cc173226b90/3b22f3a26c085a84-f4/s1280x1920/d8c65236e67151ce84ee7d73fe31b14faa62e38d.pnj />
